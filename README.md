@@ -21,5 +21,8 @@ Oh horrible fact, when i start to cry or feeling guilty , something makes me vâ€
 
 So now, leave me some space.
 
+[EDIT] - Hi i was checking on T or R github to see if they removed "Fang" , i saw that T changed it but R didnt, ill wait then.
+
+But i wanted to thank T for adding some words (i noticed there was 1+ page) , And yes, i will take a break as i writed here in this READ.ME, somehow this makes me more calm, thank you very much.
 
 -Kino
